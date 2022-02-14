@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @niteshbhaiya
 - 👀 I’m interested in Coding
 - 🌱 I’m currently learning Information Technology at Haldia Institute Of Technology
-- 📫 How to reach me e-mail nitesh616.hitit2020@gmail.com
+- 📫 you can reach me using [e-mail](nitesh616.hitit2020@gmail.com) **or** [Instagram](https://instagram.com/itsnbbhumi___)
 
 
 <!---
